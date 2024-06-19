@@ -59,7 +59,7 @@
 
 ![Screen Shot 2024-06-19 at 1 25 25 PM](https://github.com/MonetCarriere/3D-Portfolio/assets/52170550/4d86fc1b-05f7-40e7-b672-ae8dee842b0e)
 
-![Screen Shot 2024-06-19 at 1 17 36 PM](https://github.com/MonetCarriere/3D-Portfolio/assets/52170550/614ea817-8810-4811-b8ec-b84f4a1558ae)
+![Screen Shot 2024-06-19 at 1 23 31 PM](https://github.com/MonetCarriere/3D-Portfolio/assets/52170550/9765179d-76d9-44cc-85d5-acf98fd6d3ac)
 
 
 
